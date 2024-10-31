@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Varedjava1
+- 👀 I’m interested in Learning and Teaching about Coding, engineering, and More Importantly CyberSecurity
+- 🌱 I’m currently learning Java Programing, collage
+- 💞️ I’m looking to collaborate on Games Programs, and getting 1k in my yt [Link](https://www.youtube.com/@vared1) and Code cool Things and Help Out the community
+- 📫 How to reach me ..................... 
+- 😄 Pronouns: he/Him
+- ⚡ Fun fact: I worked, and created domains system of CyberSecurity with CISA!
